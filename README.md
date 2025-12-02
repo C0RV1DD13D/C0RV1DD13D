@@ -1,4 +1,4 @@
-## Hi there 👋
+## tba tba tba look away look away u arent supposed 2 see this yett !!! advert ur eyeess advert ur eyes !! shoooo shoooo !!
 
 <!--
 **C0RV1DD13D/C0RV1DD13D** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
