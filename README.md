@@ -14,7 +14,7 @@
 ㅤㅤ⠀⠀⠀⠀ㅤㅤ⠀⠀⠀⠀ㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ㅤ
   ⠀  ⠀
 
-ㅤㅤ⠀⠀⠀⠀ㅤㅤ⠀⠀⠀⠀⠀⌞ ⠀⠀⠀[rentry](https://rentry.co/tailgates)  , ,   [pronouns page](https://en.pronouns.page/@C0RV1D_)   , ,  [strawpage](ta1lgate.straw.page)  )ㅤㅤ ⌝⠀
+ㅤㅤ⠀⠀⠀⠀ㅤㅤ⠀⠀⠀⠀⠀⌞ ⠀⠀⠀[rentry](https://rentry.co/tailgates)  , ,   [pronouns page](https://en.pronouns.page/@C0RV1D_)   , ,  [strawpage](https://ta1lgate.straw.page/)ㅤㅤ ⌝⠀
 
 
 
