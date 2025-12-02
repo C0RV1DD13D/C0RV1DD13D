@@ -2,11 +2,21 @@
 
 ㅤㅤㅤㅤㅤ![stardivider](https://github.com/user-attachments/assets/123a12a8-c5d0-4009-aae3-791243f6e3bd)ㅤㅤㅤㅤㅤㅤ ![stardivider](https://github.com/user-attachments/assets/123a12a8-c5d0-4009-aae3-791243f6e3bd) ㅤㅤㅤㅤㅤㅤ![stardivider](https://github.com/user-attachments/assets/123a12a8-c5d0-4009-aae3-791243f6e3bd) ㅤㅤㅤㅤㅤ
 
-ㅤ── ⠀﹒tba tbaa dont mind this its a wiipp ⸝⸝ 𓏵
+ㅤㅤ⠀⠀⠀⠀𝜗ৎ⠀⠀ㅤ ⋮⋮ ⠀⠀ㅤthis is strictly for ponytown info , , 𓂃   .ᐟ
+ㅤㅤ⠀⠀⠀⠀ㅤㅤ⠀⠀⠀⠀ㅤㅤ⠀⠀⠀⠀ㅤㅤ⠀⠀⠀⠀
+ㅤㅤ⠀⠀⠀⠀ㅤㅤ⠀⠀⠀⠀ㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀ㅤㅤ⠀ㅤㅤ⠀ㅤㅤ⠀ㅤㅤㅤㅤ╰┈➤  ﹒int freely - - - i dont bite !! , ,
+ㅤㅤ⠀⠀⠀⠀ㅤㅤ⠀⠀⠀⠀ㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀
+ㅤㅤ⠀⠀⠀⠀ㅤㅤ⠀⠀⠀⠀ㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀ㅤㅤ⠀⠀⠀⠀ㅤㅤ⠀⠀⠀⠀
+ㅤㅤ⠀⠀⠀⠀
+c+h is always standing unless my name says otherwise ! | |⠀⠀ㅤ
+⠀⠀ㅤ
+⠀⠀ㅤ
+﹒﹒WIPWIPWIPP ADVERT UR EYES !!! !! ﹒﹒
 
-ㅤ﹒ㅤㅤㅤ please help me ㅤㅤㅤ
-ㅤ
-﹒﹒﹒﹒﹒
+
+<img width="1200" height="644" alt="gate banna" src="https://github.com/user-attachments/assets/b438c2cd-f48f-43bc-90f1-96c91bee2902" />
+
 
 ㅤㅤ⠀﹒ *tell the @atticfoox thankyeww for erasing every single light-colored pixel himself on the image >:(* 
 <!--
