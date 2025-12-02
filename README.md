@@ -2,12 +2,12 @@
 
 ㅤㅤㅤㅤㅤ![stardivider](https://github.com/user-attachments/assets/123a12a8-c5d0-4009-aae3-791243f6e3bd)ㅤㅤㅤㅤㅤㅤ ![stardivider](https://github.com/user-attachments/assets/123a12a8-c5d0-4009-aae3-791243f6e3bd) ㅤㅤㅤㅤㅤㅤ![stardivider](https://github.com/user-attachments/assets/123a12a8-c5d0-4009-aae3-791243f6e3bd) ㅤㅤㅤㅤㅤ
 
-ㅤ── ⠀﹒i dont like making bios ⸝⸝ 𓏵
+ㅤ── ⠀﹒tba tbaa dont mind this its a wiipp ⸝⸝ 𓏵
 
 ㅤ﹒ㅤㅤㅤ please help me ㅤㅤㅤ
 ㅤ
 ﹒﹒﹒﹒﹒
 
-ㅤㅤ⠀﹒
+ㅤㅤ⠀﹒ *tell the @atticfoox thankyeww for erasing every single light-colored pixel himself on the image >:(* 
 <!--
 **C0RV1DD13D/C0RV1DD13D** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
