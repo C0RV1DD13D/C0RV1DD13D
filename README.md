@@ -4,9 +4,9 @@
 
 
 <p align="center">
-  $\Huge\color{#151d36}{\textsf{i think i <3 you but i could be mistaken}}$<br>
+  $\Huge\color{#151d36}{\textsf{i think i <3 you but i could be mistaken . .}}$<br>
   $\Large\color{#36497c}{\textsf{please reconsider the decisions you're making}}$<br>
-  $\normalsize\color{#b4c2cf}{\textsf{boy you're cute n' u look good in denimm}}$<br>
+  $\normalsize\color{#b4c2cf}{\textsf{boy you're cute & u look good in denimm}}$<br>
   $\small\color{#ddf8ff}{\textsf{but ur veins r flowing w venom ! !}}$<br>
 </p>
 
