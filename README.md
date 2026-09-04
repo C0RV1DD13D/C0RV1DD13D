@@ -21,17 +21,22 @@ $\small\color{#36497c}{\textsf{ ‎ 𑣲‎  he - ask ‎ ﹕‎ 7teen‎ ‎ �
 <br>
 
 
-$\color{#b4c2cf}{\textsf{﹕ int !‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎﹕byi!}}$<br>‎
-transformers 𓏻 phighting‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ i indulge in problematic media<br>
-hfjone 𓏻 tmc 𓏻 ava/m‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎and separate creator/creation<br>
-fnaf 𓏻 + more !‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ i dont debate on this ! !<br>
-‎ ‎ ‎ ‎ ‎ ‎ ‎ <br>
-$\color{#b4c2cf}{\textsf{﹕ iwc !‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ﹕dni!}}$<br>‎
--15/20+ 𓏻 getaway rep 𓏻‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  basic critera 𓏻 getaway defenders<br>
-ship discourse + purity ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎nsfw/18+ accs + gore accounts <br>
-culture 𓏻 anti-darkship 𓏻‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ callout accounts<br>
+$\color{#b4c2cf}{\textsf{﹕ interests ! !}}$<br>‎
+a majority of this will be on my strawpage ^_^
+transformers 𓏻 phighting 𓏻 hfjone 𓏻 tmc 𓏻 ava/m 𓏻 fnaf 𓏻 
+sanrio 𓏻 tlou + more !‎‎ <br>
 
 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
+‎ ‎ ‎ ‎
+‎ ‎ ‎ <br>
+
+$\color{#b4c2cf}{\textsf{﹕ byi !‎}}$<br>‎
+i indulge in problematic media and separate 
+creator/creation OFTEN 𓏻 i dont debate on this !<br> ‎
+╰ i am a freeblocker and block req people
+who make me uncomfortable , ‎if im avoiding you that 
+might be why ! !‎ 
 
 
 <br><br><br>
