@@ -42,7 +42,7 @@ might be why ! !‎
 <br><br><br>
 
 
-
+<img src="https://github.com/user-attachments/assets/b8ae3ac9-646b-4834-8518-bfeed24488a3" /><br>
 
 
 <br><br><br>
@@ -53,7 +53,7 @@ might be why ! !‎
   $\small\color{#ddf8ff}{\textsf{but ur veins r flowing w venom ! !}}$<br>
 </p>
 
-<img src="https://github.com/user-attachments/assets/b8ae3ac9-646b-4834-8518-bfeed24488a3" /><br>
+
 
 
 <br><br><br>
