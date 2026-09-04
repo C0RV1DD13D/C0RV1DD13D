@@ -10,6 +10,13 @@
 <br><br><br>
 
 
+<img align="left" src="(https://github.com/user-attachments/assets/b8f6871d-78bc-4255-b26c-1d6e02fa56d5)">
+
+
+
+<br><br><br>
+
+
 <p align="center">
   $\Huge\color{#151d36}{\textsf{i think i <3 you but i could be mistaken . .}}$<br>
   $\Large\color{#36497c}{\textsf{please reconsider the decisions you're making}}$<br>
