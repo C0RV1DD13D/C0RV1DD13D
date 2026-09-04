@@ -27,9 +27,12 @@ txt txt txt txt ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ txt txt txt txt<br>
 txt txt txt txt ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ txt txt txt txt<br>
 txt txt txt txt ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ txt txt txt txt<br>
 
+
 <br><br><br>
 
 
+
+<br><br><br>
 <p align="center">
   $\Huge\color{#151d36}{\textsf{i think i <3 you but i could be mistaken . .}}$<br>
   $\Large\color{#36497c}{\textsf{please reconsider the decisions you're making}}$<br>
