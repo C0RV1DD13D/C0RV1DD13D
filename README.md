@@ -1,4 +1,7 @@
-<img src="https://github.com/user-attachments/assets/b8ae3ac9-646b-4834-8518-bfeed24488a3" /><br>
+<img width="2048" height="564" alt="Untitled189_20260903175405" src="https://github.com/user-attachments/assets/f06f227d-ed82-454d-9847-2e392ceff64f" />
+
+
+
 
 <br><br><br>
 
@@ -9,6 +12,8 @@
   $\normalsize\color{#b4c2cf}{\textsf{boy you're cute n' u look good in denimm}}$<br>
   $\small\color{#ddf8ff}{\textsf{but ur veins r flowing w venom ! !}}$<br>
 </p>
+
+<img src="https://github.com/user-attachments/assets/b8ae3ac9-646b-4834-8518-bfeed24488a3" /><br>
 
 <br>
 <p align="center">
