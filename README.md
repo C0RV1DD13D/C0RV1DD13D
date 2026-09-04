@@ -43,6 +43,12 @@ txt txt txt txt ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ txt txt txt txt<br>
 <p align="center">
 $\small\color{#151d36}{\textsf{if you canntt tell , this is a wip ! !}}$<br>
 
+<br><br><br>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀[rentry](https://rentry.co/tailgates)  , ,   [pronouns page](https://en.pronouns.page/@C0RV1D_)   , ,  [strawpage](https://sublevel50.straw.page)ㅤㅤ ⌝⠀
+⠀⠀[rentry](https://rentry.co/tailgates)  , ,   [pronouns page](https://en.pronouns.page/@C0RV1D_)   , ,  [strawpage](https://sublevel50.straw.page)<br>ㅤㅤ 
+
+<br><br><br>
+
+<img width="2048" height="564" alt="tumblr_1d04d9d73b33d21437132c7124e8c8a8_47300fa8_2048" src="https://github.com/user-attachments/assets/45ff9b97-a8ee-4d5d-b333-1fab6ce8dfe6" />
+
 
