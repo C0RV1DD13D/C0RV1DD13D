@@ -47,6 +47,9 @@ txt txt txt txt ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ txt txt txt txt<br>
 <img src="https://github.com/user-attachments/assets/45ff9b97-a8ee-4d5d-b333-1fab6ce8dfe6" /><br>    <br>
 <p align="center">
 $\small\color{#151d36}{\textsf{if you canntt tell , this is a wip ! !}}$<br>
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/f95a1167-1ca0-4e24-a144-7753b89b5d3e" width="100%">
+</p>
 
 
 
