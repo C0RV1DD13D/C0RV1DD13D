@@ -1,7 +1,6 @@
-<img width="2048" height="564" alt="Untitled189_20260903175405" src="https://github.com/user-attachments/assets/f06f227d-ed82-454d-9847-2e392ceff64f" />
 
 
-
+<img src="https://github.com/user-attachments/assets/f06f227d-ed82-454d-9847-2e392ceff64f" /><br>
 
 <br><br><br>
 
