@@ -24,7 +24,7 @@ $\small\color{#36497c}{\textsf{ ‎ 𑣲‎  he - ask ‎ ﹕‎ 7teen‎ ‎ �
 $\color{#b4c2cf}{\textsf{﹕ int !‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎﹕byi!}}$<br>‎
 transformers 𓏻 phighting‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ i indulge in problematic media<br>
 hfjone 𓏻 tmc 𓏻 ava/m‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎and separate creator/creation<br>
-fnaf 𓏻 + more !‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  i dont debate on this ! !<br>
+fnaf 𓏻 + more !‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ i dont debate on this ! !<br>
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ <br>
 $\color{#b4c2cf}{\textsf{﹕ iwc !‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ﹕dni!}}$<br>‎
 -15/20+ 𓏻 getaway rep 𓏻‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  basic critera 𓏻 getaway defenders<br>
