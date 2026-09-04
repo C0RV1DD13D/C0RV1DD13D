@@ -20,50 +20,23 @@ $\small\color{#36497c}{\textsf{ ‎ 𑣲‎  he - ask ‎ ﹕‎ 7teen‎ ‎ �
 
 <br>
 
-<p>
-‎ ‎ ‎
-interests ! !
-</p>
 
-<table>
-<tr>
-<td>
+$\color{#b4c2cf}{\textsf{﹕ int !‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎﹕byi!}}$<br>‎
+transformers 𓏻 phighting‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ i indulge in problematic media<br>
+hfjone 𓏻 tmc 𓏻 ava/m‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎and separate creator/creation<br>
+fnaf 𓏻 + more !‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  i dont debate on this ! !<br>
+‎ ‎ ‎ ‎ ‎ ‎ ‎ <br>
+$\color{#b4c2cf}{\textsf{﹕ iwc !‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ﹕dni!}}$<br>‎
+-15/20+ 𓏻 getaway rep 𓏻‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  basic critera 𓏻 getaway defenders<br>
+ship discourse + purity ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎nsfw/18+ accs + gore accounts <br>
+culture 𓏻 anti-darkship 𓏻‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ callout accounts<br>
 
-txt txt txt txt<br>
-txt txt txt txt<br>
-txt txt txt txt<br>
 
-</td>
 
-<td>
-
-txt txt txt txt<br>
-txt txt txt txt<br>
-txt txt txt txt<br>
-
-</td>
-</tr>
-
-<tr>
-<td>
-
-txt txt txt txt<br>
-txt txt txt txt<br>
-txt txt txt txt<br>
-
-</td>
-
-<td>
-
-txt txt txt txt<br>
-txt txt txt txt<br>
-txt txt txt txt<br>
-
-</td>
-</tr>
-</table>
 
 <br><br><br>
+
+
 
 
 
