@@ -19,16 +19,49 @@
 $\small\color{#36497c}{\textsf{ ‎ 𑣲‎  he - ask ‎ ﹕‎ 7teen‎ ‎ ﹕ c'link + kin‎ !}}$<br>
 
 <br>
+
+<p>
+‎ ‎ ‎
+interests ! !
 </p>
 
-txt txt txt txt ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ txt txt txt txt<br>
-txt txt txt txt ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ txt txt txt txt<br>
-txt txt txt txt ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ txt txt txt txt<br>
+<table>
+<tr>
+<td>
 
-txt txt txt txt ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ txt txt txt txt<br>
-txt txt txt txt ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ txt txt txt txt<br>
-txt txt txt txt ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ txt txt txt txt<br>
+txt txt txt txt<br>
+txt txt txt txt<br>
+txt txt txt txt<br>
 
+</td>
+
+<td>
+
+txt txt txt txt<br>
+txt txt txt txt<br>
+txt txt txt txt<br>
+
+</td>
+</tr>
+
+<tr>
+<td>
+
+txt txt txt txt<br>
+txt txt txt txt<br>
+txt txt txt txt<br>
+
+</td>
+
+<td>
+
+txt txt txt txt<br>
+txt txt txt txt<br>
+txt txt txt txt<br>
+
+</td>
+</tr>
+</table>
 
 <br><br><br>
 
