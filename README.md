@@ -39,15 +39,14 @@ txt txt txt txt ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ txt txt txt txt<br>
 
 <img src="https://github.com/user-attachments/assets/b8ae3ac9-646b-4834-8518-bfeed24488a3" /><br>
 
-<br>
-<p align="center">
-$\small\color{#151d36}{\textsf{if you canntt tell , this is a wip ! !}}$<br>
 
 <br><br><br>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀[rentry](https://rentry.co/tailgates)  , ,   [pronouns page](https://en.pronouns.page/@C0RV1D_)   , ,  [strawpage](https://sublevel50.straw.page)<br>ㅤㅤ 
 
-<img src="https://github.com/user-attachments/assets/45ff9b97-a8ee-4d5d-b333-1fab6ce8dfe6" /><br>
+<img src="https://github.com/user-attachments/assets/45ff9b97-a8ee-4d5d-b333-1fab6ce8dfe6" /><br>    <br>
+<p align="center">
+$\small\color{#151d36}{\textsf{if you canntt tell , this is a wip ! !}}$<br>
 
 
 
