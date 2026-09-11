@@ -23,7 +23,7 @@ $\small\color{#36497c}{\textsf{ ‎ 𑣲‎  he - ask ‎ ﹕‎ 7teen‎ ‎ �
 
 $\color{#b4c2cf}{\textsf{﹕ interests ! !}}$<br>‎
 a majority of this will be on my strawpage ^_^
-transformers 𓏻 phighting 𓏻 hfjone 𓏻 tmc 𓏻 ava/m 𓏻 fnaf 𓏻 
+transformers 𓏻 phighting 𓏻 sonic 𓏻 hfjone 𓏻 tmc 𓏻 ava/m 𓏻 fnaf 𓏻 
 sanrio 𓏻 tlou + more !‎‎ <br>
 
 
