@@ -33,7 +33,8 @@ sanrio 𓏻 tlou + more !‎‎ <br>
 
 $\color{#b4c2cf}{\textsf{﹕ byi !‎}}$<br>‎
 i indulge in problematic media and separate 
-creator/creation OFTEN 𓏻 i dont debate on this !<br> ‎
+creator/creation OFTEN as well as darkships 𓏻 
+i dont debate on this !<br> ‎
 ╰ i am a freeblocker and block req people
 who make me uncomfortable , ‎if im avoiding you that 
 might be why ! !‎ 
